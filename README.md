@@ -1,8 +1,4 @@
 # did you miss me~?
 
-<!--
-**ukeivan/ukeivan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 - hello i like cute girls and games with cute girls ill put more later ok
+![kaochisa](https://raw.githubusercontent.com/ukeivan/ukeivan/refs/heads/main/download%20(18).jpg)
