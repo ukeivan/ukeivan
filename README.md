@@ -1,6 +1,4 @@
-# did you miss me~?
-
-hello i like cute girls and games with cute girls ill put more later ok
+# if rescuing you is a sin, i'll gladly become a sinner .
 
 
 ![kiamei](https://raw.githubusercontent.com/ukeivan/ukeivan/refs/heads/main/kiamei.jpg))
