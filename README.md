@@ -1,4 +1,4 @@
-## as you can see, i'm a girl beautiful like a flower~ �
+## as you can see, i'm a girl beautiful like a flower~ 
 
 <!--
 **ukeivan/ukeivan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
