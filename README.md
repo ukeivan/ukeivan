@@ -1,6 +1,6 @@
 <div id="header" align="center">  
   
-![senti](https://raw.githubusercontent.com/ukeivan/ukeivan/refs/heads/main/MEOWW.png)
+![p3 ok](ewqweq.gif)
 
 *if rescuing you is a sin, i'll gladly become a sinner*
 
