@@ -1,6 +1,6 @@
 <div id="header" align="center">  
   
-![kyaa](https://files.catbox.moe/uir1gs.jpg)
+![kyaa](https://files.catbox.moe/fyn9x4.jpg)
 
 *if rescuing you is a sin, i'll gladly become a sinner*
 
